@@ -1,1 +1,1 @@
-The Plymouth Deluxe, introduced in 1946, was one of the first American cars to feature post-war styling, with rounded fenders, integrated headlights, and a sleek profile.
+The Nash Ambassador, introduced in 1941 but produced into the post-war period, was a full-size car known for its spacious interior, comfortable ride, and advanced engineering features.
