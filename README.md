@@ -1,1 +1,1 @@
-The Chevrolet Fleetline Aerosedan, introduced in 1941 but popular in the post-war period, featured sleek styling and was one of the first cars to incorporate streamlining for improved aerodynamics.
+The Nash Ambassador, introduced in 1941 but produced into the post-war period, was a full-size car known for its spacious interior, comfortable ride, and advanced engineering features.
