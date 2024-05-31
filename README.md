@@ -1,1 +1,1 @@
-The Chevrolet Series 490, introduced in 1915 but produced into the 1920s, offered an affordable alternative to Ford's Model T, contributing to Chevrolet's success as a mass-market brand.
+The Nash Motors Company, founded in 1916, gained popularity in the 1920s with models like the Nash Advanced Six, known for their innovative engineering and comfortable ride.
