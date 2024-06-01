@@ -1,1 +1,1 @@
-The Nash Motors Company, founded in 1916, gained popularity in the 1920s with models like the Nash Advanced Six, known for their innovative engineering and comfortable ride.
+After the end of World War II, automobile manufacturers resumed civilian production and introduced new models designed to meet post-war demand for personal transportation.
