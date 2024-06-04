@@ -1,1 +1,1 @@
-The first modern gas station, designed specifically for automobiles, opened in 1905 in St. Louis, Missouri, offering fuel, oil, and other services to motorists.
+After the end of World War II, automobile manufacturers resumed civilian production and introduced new models designed to meet post-war demand for personal transportation.
