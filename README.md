@@ -1,1 +1,1 @@
-The LaSalle, introduced by Cadillac in 1927, was a mid-priced luxury car designed to bridge the gap between Cadillac and its more affordable companion brand, Buick.
+The Locomobile Company of America, founded in 1899, was one of the first American manufacturers to produce gasoline-powered automobiles, competing with steam and electric cars of the era.
