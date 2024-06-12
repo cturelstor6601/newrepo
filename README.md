@@ -1,1 +1,1 @@
-The Duesenberg Model J, introduced in 1928, was one of the most luxurious and powerful cars of its time, featuring a massive inline-eight engine and exquisite craftsmanship.
+The Roaring Twenties saw the rise of automobile culture, with cars becoming symbols of freedom, independence, and social status for Americans.
