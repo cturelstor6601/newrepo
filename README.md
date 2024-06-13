@@ -1,1 +1,1 @@
-The Roaring Twenties saw the rise of automobile culture, with cars becoming symbols of freedom, independence, and social status for Americans.
+The Cadillac Type 61, introduced in 1924, featured a groundbreaking V8 engine, setting new standards for power and performance in luxury automobiles.
