@@ -1,1 +1,1 @@
-The Cadillac Type 61, introduced in 1924, featured a groundbreaking V8 engine, setting new standards for power and performance in luxury automobiles.
+The Chrysler Imperial, introduced in 1926, was the flagship model of the Chrysler lineup, offering luxurious amenities and advanced engineering features for discerning customers.
