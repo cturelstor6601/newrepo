@@ -1,1 +1,1 @@
-The Chrysler Imperial, introduced in 1926, was the flagship model of the Chrysler lineup, offering luxurious amenities and advanced engineering features for discerning customers.
+The Hispano-Suiza H6, introduced in 1919 but popular in the 1920s, was a luxury car favored by royalty and aristocrats, featuring advanced engineering and exquisite craftsmanship.
