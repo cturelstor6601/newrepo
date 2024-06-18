@@ -1,1 +1,1 @@
-The Peerless Motor Car Company, founded in 1900, ceased automobile production in 1931 after struggling to compete with larger automakers during the economic downturn of the late 1920s.
+The Rolls-Royce Phantom I, introduced in 1925, was the first Rolls-Royce model to feature a new inline-six engine, offering improved performance and refinement over earlier models.
