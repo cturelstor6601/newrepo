@@ -1,1 +1,1 @@
-The Lincoln Motor Company, established in 1917, was acquired by Ford in 1922, positioning it as a luxury brand within the Ford Motor Company lineup.
+The Buick Motor Company, founded in 1903, quickly became one of the largest automobile manufacturers in the United States, known for its durable and reliable cars.
