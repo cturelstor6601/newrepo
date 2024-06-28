@@ -1,1 +1,1 @@
-The Pontiac Streamliner, introduced in 1942 but produced after World War II, featured streamlined styling and was one of the first cars to offer an automatic transmission as an option.
+The Oldsmobile 98, introduced in 1941 but produced into the post-war era, was a flagship model known for its powerful engine, luxurious amenities, and cutting-edge technology.
