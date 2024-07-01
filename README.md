@@ -1,1 +1,1 @@
-The Oldsmobile 98, introduced in 1941 but produced into the post-war era, was a flagship model known for its powerful engine, luxurious amenities, and cutting-edge technology.
+The Tucker 48, introduced in 1948, was an innovative car ahead of its time, featuring a rear-mounted engine, safety features like a padded dashboard, and unconventional styling elements like a centered headlight.
