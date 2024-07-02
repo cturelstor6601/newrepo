@@ -1,1 +1,1 @@
-The Tucker 48, introduced in 1948, was an innovative car ahead of its time, featuring a rear-mounted engine, safety features like a padded dashboard, and unconventional styling elements like a centered headlight.
+The Indianapolis Motor Speedway, built in 1909, became a renowned venue for automobile racing, hosting events like the Indianapolis 500, one of the oldest and most prestigious motorsport races.
