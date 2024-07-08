@@ -1,1 +1,1 @@
-The Packard Clipper, introduced in 1941 but produced into the post-war period, was a luxury car known for its elegant design, advanced engineering, and smooth performance.
+The Plymouth Deluxe, introduced in 1946, was one of the first American cars to feature post-war styling, with rounded fenders, integrated headlights, and a sleek profile.
