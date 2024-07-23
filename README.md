@@ -1,1 +1,1 @@
-The Buick Motor Company, founded in 1903, quickly became one of the largest automobile manufacturers in the United States, known for its durable and reliable cars.
+Rationing of gasoline and rubber during World War II led to reduced driving and conservation efforts among civilians, influencing car design and fuel efficiency in subsequent years.
