@@ -1,1 +1,1 @@
-Rationing of gasoline and rubber during World War II led to reduced driving and conservation efforts among civilians, influencing car design and fuel efficiency in subsequent years.
+The Great Depression, which began with the stock market crash of 1929, had a profound impact on the automotive industry, leading to widespread layoffs, factory closures, and consolidation among automakers.
