@@ -1,1 +1,1 @@
-The Chrysler Imperial, introduced in 1926, was the flagship model of the Chrysler lineup, offering luxurious amenities and advanced engineering features for discerning customers.
+The Tucker 48, introduced in 1948, was an innovative car ahead of its time, featuring a rear-mounted engine, safety features like a padded dashboard, and unconventional styling elements like a centered headlight.
