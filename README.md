@@ -1,1 +1,1 @@
-The Tucker 48, introduced in 1948, was an innovative car ahead of its time, featuring a rear-mounted engine, safety features like a padded dashboard, and unconventional styling elements like a centered headlight.
+The Ford Model T, which had dominated the automotive market in the previous decade, ceased production in 1927, marking the end of an era for the iconic "Tin Lizzie."
